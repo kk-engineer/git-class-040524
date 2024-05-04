@@ -1,2 +1,0 @@
-denver.gomes
-white
